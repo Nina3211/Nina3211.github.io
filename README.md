@@ -1,1 +1,7 @@
-# nina3211.github.io
+# Statistician
+
+### Education
+
+### Research and Work Experience 
+
+###  Projects
